@@ -1,2 +1,3 @@
 # gakki-vs-satomi
-누가 더 예쁘냐
+?��? ???�쁘??
+it's kind of hardship
